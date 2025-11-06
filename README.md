@@ -15,6 +15,8 @@
 
 - 📫 How to reach me **deorepoojaa@gmail.com**
 
+- 📼 Youtube Channel **https://youtu.be/VZDHaGla188**
+
 <h3 align="left">Connect with me:</h3>
 <p align="left">
 </p>
